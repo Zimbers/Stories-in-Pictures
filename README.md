@@ -1,1 +1,0 @@
-# Stories-in-Pictures
